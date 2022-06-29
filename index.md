@@ -1,1 +1,0 @@
-## Homepage Redesign Coming Soon!
